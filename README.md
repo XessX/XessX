@@ -1,4 +1,4 @@
-### Hi there! If you guys need any help, just knock me up 👋.
+### Hi there! If you guys need any help, just knock me up 👋 in hossaa27@mcmaster.ca
 
 <!--
 **XessX/XessX** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
